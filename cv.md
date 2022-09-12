@@ -5,7 +5,9 @@
 
 ### Contacts
 **Telephone:** +375447883323
+
 **Email:** KristinaSavelieva7@yandex.by
+
 **GitGub** [Kristina-sinichka](https://github.com/Kristina-sinichka)
 
 ### About me
